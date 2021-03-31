@@ -1,0 +1,1 @@
+projekt i nauka w ramach kursu co ten frontend w skrócie WTF
